@@ -1,4 +1,4 @@
--No high IQ or EQ
--A wierd cat
--Also a wierd human
--^p^
+-No high IQ or EQ     
+-A wierd cat     
+-Also a wierd human     
+-^p^     
