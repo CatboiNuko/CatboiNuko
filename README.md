@@ -4,8 +4,8 @@
 
 -Also a wierd human
 
-##### **Is A Lunatic Catboy**
+-Says wierd language
 
-# ^p^
+##### **LET ME BE A CATBOY PLZZZZZZZZZZZZZZZ**
 
-[UwU](https://space.bilibili.com/101360980 "Nuko's BiliBili MainPage")
+[Nya!](https://space.bilibili.com/101360980 "Nuko's BiliBili Channel")
