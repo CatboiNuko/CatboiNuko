@@ -7,5 +7,3 @@
 -Says wierd language
 
 ##### **LET ME BE A CATBOY PLZZZZZZZZZZZZZZZ**
-
-[Nya!](https://space.bilibili.com/101360980 "Nuko's BiliBili Channel")
